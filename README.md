@@ -1,1 +1,1 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/mltscy.jpg" width="700" />
+ㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/mltscy.jpg" width="700" />
